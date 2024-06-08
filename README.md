@@ -15,6 +15,11 @@ KUALA LUMPUR CONVENTION CENTRE
 Phone Number:
 +60 17-646 8775
 
+Featured Games
+1. Cyberpunk 2077
+2. Final Fantasy XIV
+3. Burnout Blitz
+
 Packages and Pricing
 1. Game Pass (1 month) RM 19.99
 2. Game Pass (3 months) RM 49.99
