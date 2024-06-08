@@ -16,9 +16,9 @@ Phone Number:
 +60 17-646 8775
 
 Packages and Pricing
-Game Pass (1 month) RM 19.99
-Game Pass (3 months) RM 49.99
-Game Pass (12 months) RM 99.99
+1. Game Pass (1 month) RM 19.99
+2. Game Pass (3 months) RM 49.99
+3. Game Pass (12 months) RM 99.99
 
 Ordering process:
 1. Browse the game catalogues on our website
