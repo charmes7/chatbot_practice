@@ -7,7 +7,7 @@ Time open:
 Everyday from 9am to 6pm (Except wednesday)
 
 Website Link:
-([https://chocolate-cakes-kijjl6g.gamma.site/](https://gamers-hideout-nw11ex1.gamma.site/))
+((https://gamers-hideout-nw11ex1.gamma.site/))
 
 Location:
 KUALA LUMPUR CONVENTION CENTRE
